@@ -1,4 +1,4 @@
-Hi, I just made this username to give some edgy ansty feel n' shit cuz... mmmph shit, I don't even know ;-;
+Hi, I just made this username to give some edgy ansty feel cuz... it's cool I guess, I don't even know ;-;
 
 Anyways, as of September 2023 I'm starting out on learning front end development on The Odin Project out of interest.
 
